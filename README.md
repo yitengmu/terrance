@@ -6,5 +6,5 @@ Undergraduate @ Hong Kong University of Scienc and Technology 22'
 Ex-Product Manager @ Kuaishou and ByteDance  
 Ex-Head Student Ambassador @ HKUST  
 🪂  
-personal website: https://terrancemu.com
+Personal Website: https://terrancemu.com  
 Part-time Poet: https://abyssalt.com
